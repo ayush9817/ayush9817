@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ayush.bajaj.98178@gmail.com**
 
-- 📄 Check my resume- [https://salmon-valina-49.tiiny.site](https://salmon-valina-49.tiiny.site)
+- 📄 Check my resume- [https://shorturl.at/jsyCP](https://shorturl.at/jsyCP)
 
 - ⚡ Fun fact: **I am an Air-Force Brat.**
 - 🎖️ Hobbies and Interests: Music , Gaming , Podcasting and Coding.
